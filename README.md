@@ -1,2 +1,2 @@
-# backfliphax
-my 3ds shiz for something (plz dont hurt me nintendy)
+# backfliphax: More info if I find an exploit
+Please Don't Hurt me Nintendy!! :(
